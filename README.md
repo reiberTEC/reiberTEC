@@ -1,2 +1,2 @@
-# Emmanuel Eduardo Rodriguez Torres # 👋
+# Emmanuel Eduardo Rodriguez Torres 👋
 
